@@ -10,3 +10,9 @@ Playlist yang menggambarkan beberapa fase hidup saya.
 4. Malaikat - Themilo
 5. Sekian, Terima Kasih - The jeblogs
 6. Don't worry for being alone - Themilo
+
+## Favorite Song
+
+### Sekian, Terima Kasih - The jeblogs
+
+Lagu ini mengajarkan saya untuk mengikhlaskan sebuah kisah berakhir
