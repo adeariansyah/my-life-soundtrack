@@ -16,3 +16,8 @@ Playlist yang menggambarkan beberapa fase hidup saya.
 ### Sekian, Terima Kasih - The jeblogs
 
 Lagu ini mengajarkan saya untuk mengikhlaskan sebuah kisah berakhir
+
+## Current mood
+
+1. Lebih dari - Alkateri
+2. Pulang - Themilo
